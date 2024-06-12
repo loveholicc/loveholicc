@@ -25,5 +25,5 @@
 
 <div align= "center">
 
-<i>diveder by [whisfer](https://www.tumblr.com/whisfer)
+<i>divider by [whisfer](https://www.tumblr.com/whisfer)
 ***
