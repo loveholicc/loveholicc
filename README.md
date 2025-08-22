@@ -12,11 +12,10 @@
 
 </h5> 
 <h5 align="center">
-"Not just anybody
-너를 상상했지
-항상 닿아있던
-처음 느낌 그대로 난
-기다렸지 all this time..."
+"다시 돌아와도 돼
+i don't care what other people say
+놓지 말아봐줘
+dreaming of each other..."
 <h5 align="center">
   
 </h4> 
