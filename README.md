@@ -17,7 +17,15 @@ i don't care what other people say
 놓지 말아봐줘
 dreaming of each other..."
 <h5 align="center">
-  
+
+<h5 align="center">
+
+[carrd](https://aaiiraa.carrd.co/)  &  [atabook](https://airaaaa.atabook.org/)
+
+<h5 align="center">
+
+
+    
 </h4> 
 <h5 align="center">
 <img src="https://64.media.tumblr.com/7f12f972f683d000630e3cd195f8d5c7/fd0c0524545aced3-bf/s500x750/e95bad1f042803839fe61d2b4d88dee7bbe1a990.pnj"/>
